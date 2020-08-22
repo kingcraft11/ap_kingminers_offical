@@ -1,1 +1,0 @@
-# ap_kingminers_offical
